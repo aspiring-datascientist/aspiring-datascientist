@@ -4,6 +4,6 @@
 💞️ I’m looking to collaborate on topics related to excel and sql
 📫 How to reach me? through github discussions or at soniwalafatema@gmail.com
 😄 Pronouns: Trailblazer,Tenacious,Aspirer
-⚡ Fun fact:Not mine but the definitely the best "Data scientist:The sexiest Job of 21st century"
+⚡ Fun fact:Not mine but the definitely the best "Data scientist:The leading Job of 21st century"
 
 
